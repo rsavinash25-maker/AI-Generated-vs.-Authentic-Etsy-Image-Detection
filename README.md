@@ -1,0 +1,1 @@
+# AI-Generated-vs.-Authentic-Etsy-Image-Detection
